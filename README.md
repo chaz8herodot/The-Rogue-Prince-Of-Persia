@@ -218,4 +218,4 @@ The Rogue Prince of Persia is offered as a complete free version for Windows wit
 Ready to embark on your adventure? **Download The Rogue Prince of Persia for free today and start your journey!**
 
 ---
-**Last updated:** 2026-10-17 22:09:38 UTC
+**Last updated:** 2026-10-18 00:49:00 UTC
